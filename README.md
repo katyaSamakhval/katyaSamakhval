@@ -1,3 +1,4 @@
+![Katya Samakhval (3)-min](https://github.com/katyaSamakhval/katyaSamakhval/assets/151464786/3033f7c0-7a08-4a8d-a0fe-60a77ec41ac7)
 Hi 👋 My name is Katya Samakhval
 ================================
 
